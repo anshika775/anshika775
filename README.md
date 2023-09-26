@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **anshikakumari256@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/hrishikeshkini/](https://www.linkedin.com/in/hrishikeshkini/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/anshika-kumari/](https://www.linkedin.com/in/anshika-kumari/)
 
 
 <h3 align="left">Connect with me:</h3>
